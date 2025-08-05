@@ -1,5 +1,24 @@
 ## Hi there 👋
-My name is ELizabeth O
+My name is Elizabeth Ocloo
+
+
+https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExY3JwNGVsemUxa2NwaHkyenlyanpvcnZ0dDdxNTJic2lsN3dzZmk3biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/UZQCbV4OW1mXdHJNPS/giphy.gif 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 Here are some ideas to get you started:
