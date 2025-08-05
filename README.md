@@ -12,5 +12,5 @@ Me when i start working!!
 💬 **Let’s connect!**  
 If you’re also learning, or have beginner-friendly advice, I’d love to hear from you.
 
-Linkedin: linkedin.com/in/elizabeth-ocloo-315403336
+Linkedin: linkedin.com/in/elizabeth-ocloo
 📫 Email: elizabethocloo92@gmail.com
